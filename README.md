@@ -35,4 +35,4 @@
 ## 📫 Connect with Me
 
 - 💼 **LinkedIn:** [Mario Zarza on LinkedIn](https://www.linkedin.com/) *(Agrega tu enlace directo)*
-- ✉️ **Email:** *(Agrega tu correo profesional)*
+- ✉️ **Email:** mariozarzaz@icloud.com
